@@ -1,1 +1,1 @@
-# resetkatasandi
+# resetkatasand
